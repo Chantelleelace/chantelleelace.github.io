@@ -31,5 +31,5 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 
 ### Resume Update
 
-(https://drive.google.com/file/d/1tiV-OUfuu1zeyxwmg6l2OX-u-xvH5F9U/view?usp=sharing "My Resume")
+[Click here to view my resume!](https://drive.google.com/file/d/1tiV-OUfuu1zeyxwmg6l2OX-u-xvH5F9U/view?usp=sharing "My Resume")
 
