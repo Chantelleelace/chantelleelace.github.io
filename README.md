@@ -42,7 +42,7 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 
 ### Identify Two Orgs
 
-<b>First:</b></n>
+<b>First:</b></br>
 <b>Name of Org</b> Rural Sourcing Inc. (RSI)</br>
 <b>Targeted Contact</b> High School Classmate, our kids are in same class. </br>
 <b>That contact's contact information (email, phone if you know it)</b> unknown </br>
