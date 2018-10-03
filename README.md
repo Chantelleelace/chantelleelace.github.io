@@ -58,6 +58,9 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 <b>A short blurb on why you selected this company</b> I have heard that it is a great company to work for that provides generous benefits and pto </br>
 <b>Strategy for reaching out to this person</b> My kids are in the same class as these contacts and I will ask them to speak with me about networking opportunities. </br>
 
+### Salary Expectations
+
+My goal for the following year to two years after boot camp is to be making a salary or 52,000/year.  I would like to initially take a position that gives me room for growth and plenty of on the job training. 
 
 
 
