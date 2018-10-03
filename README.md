@@ -38,25 +38,25 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 
 ### Cooking up opportunities
 
-[Click here to see my burner drawing!] (https://drive.google.com/file/d/1gA_vbDYBbH7p5MevQ2CzLq9vHGAWXJ_f/view?usp=sharing "My Burner Drawing")
+[Click here to see my burner drawing!](https://drive.google.com/file/d/1gA_vbDYBbH7p5MevQ2CzLq9vHGAWXJ_f/view?usp=sharing "My Burner Drawing")
 
 ### Identify Two Orgs
 
-<b>First:</b>
-<b>Name of Org</b> Rural Sourcing Inc. (RSI)
-<b>Targeted Contact</b> High School Classmate, our kids are in same class. 
-<b>That contact's contact information (email, phone if you know it)</b> unknown 
-<b>Url to their website</b> https://www.ruralsourcing.com/development-centers/
-<b>A short blurb on why you selected this company</b> They market themselves as having a google-like atmosphere with great work/life balance. They have all of the different career paths I am interested in.
-<b>Strategy for reaching out to this person</b> Meet with them either at our children’s school or through our mutual family friend. 
+<b>First:</b></n>
+<b>Name of Org</b> Rural Sourcing Inc. (RSI)</n>
+<b>Targeted Contact</b> High School Classmate, our kids are in same class. </n>
+<b>That contact's contact information (email, phone if you know it)</b> unknown </n>
+<b>Url to their website</b> https://www.ruralsourcing.com/development-centers/</n>
+<b>A short blurb on why you selected this company</b> They market themselves as having a google-like atmosphere with great work/life balance. They have all of the different career paths I am interested in.</n>
+<b>Strategy for reaching out to this person</b> Meet with them either at our children’s school or through our mutual family friend.</n></n>
 
-<b>Second:</b>
-<b>Name of Org</b> Sandia National Labs
-<b>Targeted Contact</b> Mrs. Huff / Mrs. Singh
-<b>That contact's contact information (email, phone if you know it)</b> unknown
-<b>Url to their website</b> https://www.sandia.gov/about/
-<b>A short blurb on why you selected this company</b> I have heard that it is a great company to work for that provides generous benefits and pto 
-<b>Strategy for reaching out to this person</b> My kids are in the same class as these contacts and I will ask them to speak with me about networking opportunities. 
+<b>Second:</b></n>
+<b>Name of Org</b> Sandia National Labs</n>
+<b>Targeted Contact</b> Mrs. Huff / Mrs. Singh</n>
+<b>That contact's contact information (email, phone if you know it)</b> unknown</n>
+<b>Url to their website</b> (https://www.sandia.gov/about/)</n>
+<b>A short blurb on why you selected this company</b> I have heard that it is a great company to work for that provides generous benefits and pto </n>
+<b>Strategy for reaching out to this person</b> My kids are in the same class as these contacts and I will ask them to speak with me about networking opportunities. </n>
 
 
 
