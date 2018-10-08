@@ -42,7 +42,7 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 
 ### Identify Two Orgs
 
-####First:
+#### First:
 1. Name of Org 
 - Rural Sourcing Inc. (RSI)
 2. Targeted Contact
@@ -56,7 +56,7 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 6. Strategy for reaching out to this person
 - Meet with them either at our children’s school or through our mutual family friend.
 
-####Second:
+#### Second:
 1. Name of Org
 - Sandia National Labs
 2. Targeted Contact
