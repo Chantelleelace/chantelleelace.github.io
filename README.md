@@ -74,5 +74,11 @@ The week overall went really well. Just nervous for the infamous ‘week three b
 
 My goal for the following year to two years after boot camp is to be making a salary or 52,000/year.  I would like to initially take a position that gives me room for growth and plenty of on the job training. 
 
+### Weekly Break Down 
+
+The second week was great! I am still able to follow along without confusion. I know that I am not yet in a position to wrtie full code on my own as of yet but I don't know if we are expected to right now. I’m not sure if that’s where I am supposed to be at quite yet. I unfortunately had to miss the speakers on Friday but hopefully didn't miss too much instructions. I was able to get a passing grade on my quiz but I am curious to see how terrible I would do on the test if it were given right now. Looking foward to learning about salesforce next week.
+
+## Week of October 8, 2018
+
 
 
