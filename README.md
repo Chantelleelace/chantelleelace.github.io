@@ -80,5 +80,13 @@ The second week was great! I am still able to follow along without confusion. I 
 
 ## Week of October 8, 2018
 
+### Visuals Speak
+
+[This is my first picture.](https://drive.google.com/file/d/0B-qU7VofrIyEekEtV09UYUdUR2VIRklSNndNdkNPcTFINTNv/view?usp=sharing "My First Picture")
+In the photo, this woman looks like she is using devine forces to accomplish something. I am also channeling spirits to get me through this course and on to my next journey. 
+
+[This is my second picture.](https://drive.google.com/file/d/0B-qU7VofrIyEQXhtdVltSjR5ZVVoamw2SGlZZFBQajdFRWdv/view?usp=sharing "My Second Picture")
+This is a picture of a web. Just like the spider, in three years I hope to have created an established "web of life" for myself and family.
+
 
 
