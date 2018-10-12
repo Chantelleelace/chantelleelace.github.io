@@ -88,5 +88,7 @@ In the photo, this woman looks like she is using devine forces to accomplish som
 [This is my second picture.](https://drive.google.com/file/d/0B-qU7VofrIyEQXhtdVltSjR5ZVVoamw2SGlZZFBQajdFRWdv/view?usp=sharing "My Second Picture")
 This is a picture of a web. Just like the spider, in three years I hope to have created an established "web of life" for myself and family.
 
+### Weekly Break Down
 
+The infamous week three has come and gone (*brain dead*) I learned about Salesforce and I am really excited about it. After the boot camp I would love to (deep) dive into the Trailhead! I was out half a day due to a migraine and that made my life just that much more complicated trying to catch up. Will take the weekend to recover and study! 
 
