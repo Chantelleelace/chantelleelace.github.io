@@ -88,6 +88,15 @@ In the photo, this woman looks like she is using devine forces to accomplish som
 [This is my second picture.](https://drive.google.com/file/d/0B-qU7VofrIyEQXhtdVltSjR5ZVVoamw2SGlZZFBQajdFRWdv/view?usp=sharing "My Second Picture")
 This is a picture of a web. Just like the spider, in three years I hope to have created an established "web of life" for myself and family.
 
+### Self Google Search
+After searching for myself, I found that my social media accounts were what came up first. I also found an identity tracker site saying that I have like 5+ felonies or something like that. Not true so I hope this isn't used against me from an employers prospective. 
+
+### Identity Chart 
+[This is my identity Chart.](https://docs.google.com/spreadsheets/d/1pAyaTsLBpFD2yC2Vwrr_G4ZgDq6L0KBrh4V3UsfH2_Q/edit?usp=sharing "My Identity Chart")
+
+### Updated Resume
+[This is my updated resume.](https://drive.google.com/file/d/1q0X00iV7Q0DMSOQhl3GMtzDN7Y4eHb78/view?usp=sharing "My Resume")
+
 ### Weekly Break Down
 
 The infamous week three has come and gone (*brain dead*) I learned about Salesforce and I am really excited about it. After the boot camp I would love to (deep) dive into the Trailhead! I was out half a day due to a migraine and that made my life just that much more complicated trying to catch up. Will take the weekend to recover and study! 
