@@ -101,3 +101,16 @@ After searching for myself, I found that my social media accounts were what came
 
 The infamous week three has come and gone (*brain dead*) I learned about Salesforce and I am really excited about it. After the boot camp I would love to (deep) dive into the Trailhead! I was out half a day due to a migraine and that made my life just that much more complicated trying to catch up. Will take the weekend to recover and study! 
 
+## Week of October 15, 2018
+
+### Forbidden Island
+
+I was pleasantly surprised with this game because I was not expecting to have as much fun as I did. It was actually pretty challenging and I enjoyed the collaboration aspect. My team and I were able to play together a second time during lunch and actually won this time around. (yay!) We were able to make a game plan pretty quickly and then from there it was just a matter of collecting the treasures and getting lifted out! I would be more than happy to play again anytime! 
+
+### Ground Rules
+[These are our Ground Rules](https://docs.google.com/document/d/1O3z-_NXugW70joNWoAaKLGamrEjx7ZsA-OffdAFP9Fc/edit?usp=sharing "Project JAVA Ground Rules")
+
+### Weekly Break Down
+
+This week is ending on a great note - got a 102% on the first portion of our test! I honestly think it was more resourcefulness than skill set or knowledge but I'm not complaining. I cannot believe that four weeks have already come and gone. I do really enjoy the extra things that we do outside of class, especially the talks on Fridays. They really help give me an idea of what career areas I would like to explore after boot-camp or what things I should look into for possibly beefing up my resume. Looking forward for week five! 
+
